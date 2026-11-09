@@ -6,6 +6,10 @@
 [![视频格式](https://img.shields.io/badge/格式-MP4-blue.svg)](#)
 [![素材授权](https://img.shields.io/badge/素材-已授权-green.svg)](#)
 
+## 🎬 在线观看
+
+👉 **[点击在线观看视频](https://gao666-max.github.io/qixia-cat-mountain/)** —— 主片 + 3 条抖音切片，浏览器里直接播放，无需下载。
+
 ---
 
 ## Problem（背景与问题）
